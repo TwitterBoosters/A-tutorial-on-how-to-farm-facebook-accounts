@@ -1,4 +1,4 @@
-# A-tutorial-on-how-to-farm-facebook-accounts
+# A tutorial on how to farm facebook accounts
 **registration creation**
 
 Registration can be done in several ways:
